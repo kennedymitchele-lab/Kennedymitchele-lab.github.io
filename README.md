@@ -1,1 +1,1 @@
-# Kennedymitchele-lab.github.io
+# kennedymitchele-lab.github.io
